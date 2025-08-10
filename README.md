@@ -6,8 +6,7 @@
 whatsapp:
   +92 3117907036
   
-Facebook:
-  https://www.facebook.com/hasnain.sikander.18/
+
   
 If you have any work for me , you can do that through:
 fIVERR:
