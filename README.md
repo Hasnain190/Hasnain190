@@ -9,8 +9,7 @@ whatsapp:
 
   
 If you have any work for me , you can do that through:
-fIVERR:
-  https://www.fiverr.com/hasnainqq/
+
   
 UPWORK:
   https://www.upwork.com/freelancers/~01231c5887cf056907
